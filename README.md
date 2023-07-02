@@ -6,6 +6,7 @@ What does it mean to be mentally strong?
 
 "Be strong enough to be gentle. Be compassionate."
 
+---
 Are you strong enough to be gentle to yourself? To others? Do you enjoy what life has to offer?
 
-This is the home for the Self-awareness and Communication Toolkit for improved well being. [Check it out!](https://go.strongenoughtobegentle.com/)
+This is the home for the [Self-awareness and Communication Toolkit](https://go.strongenoughtobegentle.com/) for improved well being. [Check it out!](https://go.strongenoughtobegentle.com/)
