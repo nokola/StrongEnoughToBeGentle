@@ -1,4 +1,4 @@
-# Strong enough to be gentle
+# 💪Strong enough to be gentle 💖💗
 
 What does it mean to be mentally strong?
 
