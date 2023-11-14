@@ -13,7 +13,7 @@ How do I navigate life, relationships, and most importantly - the relationship w
 
 I love this video by Peter Cullen, the late voice actor of Optimus Prime in the Transformers movie. In this video he talks about what strength is and the inspiration from his brother:
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zryfjSaxXLo?si=YBFGKuW4f3WhwYV5&amp;start=44" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/zryfjSaxXLo?si=YBFGKuW4f3WhwYV5&amp;start=44" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 # The self-care toolkit
