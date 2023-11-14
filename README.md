@@ -1,12 +1,20 @@
-# 💪Strong enough to be gentle 💖💗
+# Strong enough to be gentle 💪💖
 
-What does it mean to be mentally strong?
+What does it mean to be strong? Does it mean to be tough, uncompromizing, always in control?
 
-"If you're going to be a hero Peter, be a real hero. ... There was a seriousness in him. The way he talked...there was a smoothness in it."
+It does not.
 
-"Be strong enough to be gentle. Be compassionate."
 
----
-Are you strong enough to be gentle to yourself? To others? Do you enjoy what life has to offer?
+I believe that true strength is achieved only when one has the capability to be gentle to themselves **and** others.
 
-This is the home for the [Self-awareness and Communication Toolkit](https://go.strongenoughtobegentle.com/) for improved wellbeing. [Check it out!](https://go.strongenoughtobegentle.com/)
+Feel a deep sense of empowerment, power, yet calmness and warmth.
+
+Check out this intro video by Peter Cullen, a late famous voice actor of Optimus Prime in the Transformers movie. In this video he talks about what strength is and the inspiration from his brother:
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zryfjSaxXLo?si=YBFGKuW4f3WhwYV5&amp;start=44" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+# The toolkit
+Are you ready to learn some tools that can help you become stronger? 
+
+Take care of yourself by reading [Self-care toolkit](https://go.strongenoughtobegentle.com/)
