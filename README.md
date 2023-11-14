@@ -5,7 +5,7 @@ What does it mean to be strong? Does it mean to be tough, uncompromizing, always
 It does not.
 
 
-I believe that true strength is achieved only when one has the capability to be gentle to themselves **and** others.
+I believe that true strength is achieved only when one has the capability to be **gentle to themselves and others**.
 
 Can I be strong enough to understand myself, be calm, warm, and yet have clear boundaries, self-respect, self-love, self-acceptance and extend all of these to others?
 
@@ -31,11 +31,11 @@ Some of these discussions changed lives.
 
 Some of them did not.
 
-Some of them might have been harmful.
+Some of them were harmful.
 
 This information came to life through my experience and research in what works. I would have liked to know it decades ago.
 
-The toolkit is free. 
+The toolkit is free.
 
 I am confident would make the world better if it was taught in schools.
 
